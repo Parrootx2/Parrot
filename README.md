@@ -1,1 +1,1 @@
-ㅤㅤi love my beauty **wife** SMM :33 𖹭
+ㅤㅤi **lov** my beauty **wife** SMM :33 𖹭
